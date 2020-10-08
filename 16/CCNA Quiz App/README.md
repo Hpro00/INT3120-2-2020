@@ -1,2 +1,2 @@
 App CCNA Quiz
-App h?c v‡ l‡m b‡i thi CCNA
+App h·ªçc v√† l√†m b√†i thi CCNA
